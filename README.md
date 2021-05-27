@@ -1,0 +1,5 @@
+- 👋 Hi, I’m a garbage alt account for TheDarkThief
+- 👀 I’m interested in runing my school's firewall :>
+- 🌱 I’m currently learning a bunch of random junk
+- 💞️ I’m looking to collaborate on creating a custom sucure proxy server
+- 📫 How to reach me: IdcForThis1@outlook.com
